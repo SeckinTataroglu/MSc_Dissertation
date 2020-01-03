@@ -1,4 +1,4 @@
-## Note That: This study is my own master's dissertation topic and all the copyrights belong to me.
+## Please Note That: This study is my own master's dissertation and all the copyrights belong to me.
 
 
 
