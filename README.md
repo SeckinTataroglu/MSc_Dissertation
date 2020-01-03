@@ -1,4 +1,4 @@
-##### Please Note That: This study is my own master's dissertation and all the copyrights belong to me.
+##### Please Note That: This study is my own master's dissertation and all the copyrights belong to me. Please cite when you use in order to avoid any plagiarism.
 
 
 
